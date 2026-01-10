@@ -5,3 +5,4 @@
 # 这就是ChatGPT---Wolfram (Jan 6th finished)
 # 改变的勇气---岸见一朗( Jan 7th finished)
 # 苏格拉底(Jan 8th finished)
+# 咸的玩笑---刘震云
