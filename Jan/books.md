@@ -6,4 +6,4 @@
 # 改变的勇气---岸见一朗( Jan 7th finished)
 # 苏格拉底(Jan 8th finished)
 # 咸的玩笑---刘震云
-# 亚里士多德（Jan )
+# 亚里士多德（Jan 11st finished )
