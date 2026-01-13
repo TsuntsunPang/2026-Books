@@ -7,3 +7,4 @@
 # 苏格拉底(Jan 8th finished)
 # 咸的玩笑---刘震云(Jan )
 # 亚里士多德（Jan 11st finished )
+# 每个人的亚里士多德----
