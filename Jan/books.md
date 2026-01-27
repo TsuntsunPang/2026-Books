@@ -3,6 +3,7 @@
 # 我不是潘金莲---刘震云(Jan 19th finished)
 # 诗酒趁年华苏轼传-----陈舞雩(Jan 22nd finished)
 # 历史中的大与小---马伯庸(Jan 24th finished)
+# 理性主义的梦-于谦传 (Jan 26th finished)
 # 算法简史---
 # 政治学---亚里士多德
 # 形而上学---亚里士多德
