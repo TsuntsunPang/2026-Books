@@ -5,6 +5,7 @@
 # 历史中的大与小---马伯庸(Jan 24th finished)
 # 理性主义的梦-于谦传 (Jan 26th finished)
 # 大宋群星闪耀时(I)----陈望北（Jan 28th finished)
+# 大宋群星闪耀时(II)----陈望北（Jan 30th finished)
 # 一切皆契约---
 # 算法简史---
 # 政治学---亚里士多德
