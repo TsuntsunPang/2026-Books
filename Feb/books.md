@@ -2,6 +2,7 @@
 # 命运转角处的我们-----(Feb 2nd finished)
 # 一切皆契约----聂辉华(Feb 3rd finished)
 # 东晋帝国---- （Feb 7th finished )
+# 算法简史-----(Feb 8th finished )
 # 我就刘跃进----刘震云
 # 理想国----
 # 政治学-----
