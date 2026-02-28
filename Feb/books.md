@@ -10,7 +10,7 @@
 # 大唐诗人风云----(Feb 17th finished )
 # 改革历程---赵紫阳(Feb 25th )
 # 叫魂：1768年中国妖术大恐慌----孔飞力(Feb 27)
-# 苏菲的世界----
+# 苏菲的世界----(Plan to finished on March 4th)
 # 秋园-----杨本芬（Feb 23rd finished）
 # 拆论文，从精读中领悟学术写作---
 # 维特根斯坦解读----柯申（Feb 19th finished）
