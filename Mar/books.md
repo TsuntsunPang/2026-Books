@@ -1,7 +1,7 @@
 # 苏菲的世界----
-# 牛鬼蛇神录----杨小凯
+# 牛鬼蛇神录----杨小凯(March 9th finished)
 # 苏轼传----
-# 人生由她---
+# 人生由她---(March 9th finished)
 # 少年读红楼--- (March 6th finished)
 # 叫魂---孔立飞(March 2nd finished)
 # 人情练达的智慧----吴彩霞(March 3rd finished)
