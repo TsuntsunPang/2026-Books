@@ -1,4 +1,5 @@
 # 苏菲的世界----
+# 放过自己----(March 10th finished)
 # 牛鬼蛇神录----杨小凯(March 9th finished)
 # 苏轼传----
 # 人生由她---(March 9th finished)
