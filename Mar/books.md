@@ -1,5 +1,7 @@
 # 苏菲的世界----
 # 会饮篇-----柏拉图(March 11st finished)
+# 苏格拉底的申辩---柏拉图( March 12nd finished)
+# 40堂生死课----胡亦安
 # 放过自己----(March 10th finished)
 # 牛鬼蛇神录----杨小凯(March 9th finished)
 # 苏轼传----
