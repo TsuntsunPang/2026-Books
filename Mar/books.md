@@ -1,7 +1,7 @@
 # 如果柏拉图有博客----
 # 论柏拉图的《会饮》---
 # 苏菲的世界----
-# 今夜拍案惊奇---阎鹤祥
+# 今夜拍案惊奇---阎鹤祥（March 18th finished)
 # 趣说汉朝407---杨洋阳(March 16th finished)
 # 会饮篇-----柏拉图(March 11st finished)
 # 苏格拉底的申辩---柏拉图( March 12nd finished)
