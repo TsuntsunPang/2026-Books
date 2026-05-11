@@ -3,7 +3,7 @@
 # 一本小小的逻辑书----杨波(May 3rd finished)
 # 我焦虑，我空虚，我存在----（May 5th finished)
 # 生命的最后一课----朱锐（May 5th finished)
-# 自省，从被动努力到主动进步----风
+# 自省，从被动努力到主动进步----风墟(May 11st finished)
 # 全然的慈悲----
 # 被讨厌的勇气-----羊梨笔记(May 9th finished)
 # 社会契约论---
