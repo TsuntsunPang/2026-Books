@@ -8,6 +8,7 @@
 # 做一个内核稳定的成年人---风墟(May 14th finished)
 # 我就是你啊----(May 17th finished)
 # 社交焦虑----(May 22nd finished)
+# 走出抑郁---王宇
 # 生命之美---
 # 平面国----
 # 允许自己做自己---王宇(May 26th finished)
