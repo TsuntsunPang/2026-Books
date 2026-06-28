@@ -6,7 +6,7 @@
 # 英语极简学习法---(June 13rd finished)
 # 非暴力沟通---马歇尔·卢森堡(June 16th finished )
 # 认知觉醒---周岭(June 21st finished)
-# 苏东坡全传---度阴山 (June )
+# 苏东坡全传---度阴山 (June 29th)
 # 风止意难平---(June 27th finished)
 # 苏东坡传---
 # 原子习惯---
