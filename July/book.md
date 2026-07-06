@@ -1,5 +1,6 @@
 # 红楼梦人物论--- (July 1st finished)
 # 加缪思想全书---(July 4th finished)
+# 我的抑郁重生日记---未央(July 6th finished)
 # 红楼梦的两个世界---
 # 当尼采哭泣---欧文亚隆
 # 蛙--莫言
