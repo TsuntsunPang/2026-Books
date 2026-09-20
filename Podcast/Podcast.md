@@ -13,6 +13,9 @@
 ## https://www.youtube.com/@officialenglishtalk
 ## Learn English with Bob the Canadian
 ## https://www.youtube.com/@LearnEnglishwithBobtheCanadian
+## Talk Anna
+## https://www.youtube.com/@TalkAnna
 # Chinese Podcast
 ## 知行小酒馆
+
 ##
