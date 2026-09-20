@@ -7,4 +7,8 @@
 ## https://www.youtube.com/@SpeakEnglishWithVanessa
 ## English with Lucy
 ## https://www.youtube.com/@EnglishwithLucy
+## Ariannita la Gringa
+## https://www.youtube.com/@ariannitalagringa
+## Daily English Talk
+## https://www.youtube.com/@officialenglishtalk
 # Chinese Podcast
