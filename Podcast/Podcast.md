@@ -11,4 +11,8 @@
 ## https://www.youtube.com/@ariannitalagringa
 ## Daily English Talk
 ## https://www.youtube.com/@officialenglishtalk
+## Learn English with Bob the Canadian
+## https://www.youtube.com/@LearnEnglishwithBobtheCanadian
 # Chinese Podcast
+## 知行小酒馆
+##
